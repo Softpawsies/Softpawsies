@@ -8,4 +8,3 @@
 - II have a typing quirk of repeating my I's when referring to myself in first person, if it's hard to read, ask for translations. /gen
 - Yes, II copied my bf's layout, she said II could :33
 - Demoman kin
-- Cover discomfort
